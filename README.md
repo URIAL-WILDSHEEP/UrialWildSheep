@@ -1,15 +1,41 @@
+The Urial WildSheep contract to help grow, develop, market, team and gift Urial WildSheep is simple but powerful.
 
-The Urial WildSheep contract to help grow Urial WildSheep,
- development, marketing, team, gifts, is simple but powerful.
+The total release of Urial WildSheep is 1,000,000,000,000,000,000,000 URIAL and can be purchased through Pancakeswap.
 
-The total release of Urial WildSheep is 100,000,000,000,000,000 tokens and it can be purchased through Pancakeswap.
+Urial WildSheep was launched with PANCAKESWAP-locked liquidity on February 22, 2022, and we are excited to expand and grow our unique platform in the next few years, both downtrends and uptrends.
 
-Urial WildSheep was launched on December 14 with liquidity locked in CoinTool, and we are excited to expand and grow our unique platform in the next few years,
-⅞ either the downtrend or the uptrend.
+With the many revenue streams that have revolutionized the urial wildsheep platform, Urial WildSheep is set to become a familiar name to all digital currency enthusiasts and digital currency developers.
 
-With the numerous revenue streams that have revolutionized the urial wildsheep platform,
+Join us on a journey to the summit . 
 
-Urial WildSheep is set to become a household name for anyone interested in digital currencies and digital currency developer.
- Join us on our journey to the summit.
+View in Bscscan:
+
+https://bscscan.com/token/0xaac67495301ba344b5458024ee366a12b65b4600
+
+BSC SMART CONTRACT  FOR BUY URIALWILDSHEEP:
+
+0xaac67495301ba344b5458024ee366a12b65b4600
+
+View Chart: 
+
+https://poocoin.app/tokens/0xaac67495301ba344b5458024ee366a12b65b4600
+
+UrialWildSheep Token‌‌‌‌ Support Site:
 
 https://urialwildsheep.com/
+
+Our Telegram Channel:
+
+https://t.me/UrialWildSheep
+
+Contact:
+
+info@UrialWildSheep.com
+
+Link :
+
+https://twitter.com/Alibina_Urial?t=M24bxYakU4KblIwlEwK1oA&s=09
+
+https://github.com/URIAL-WILDSHEEP/UrialWildSheep
+
+
